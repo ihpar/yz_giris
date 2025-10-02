@@ -1,1 +1,1 @@
-BAİBÜ YZ Giriş Dersi
+BAİBÜ Makine Müh. Y. Z. Giriş Dersi
